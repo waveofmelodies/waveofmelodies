@@ -1,7 +1,6 @@
 <img width="1280" height="220" alt="862eea4a7c3ecc6c1137ae718ce0940f" src="https://github.com/user-attachments/assets/a48a8231-ac41-4547-ae43-6970e32cc4f9" />
-                     ────୨ৎ──── 𝘪 𝘭𝘪𝘬𝘦 𝘢 𝘭𝘰𝘵 𝘰𝘧 𝘵𝘩𝘪𝘯𝘨𝘴 ! 𝄞⋆ ݁♪ . -- ────୨ৎ────
+                     ────୨ৎ──── 𝘪 𝘭𝘪𝘬𝘦 𝙖 𝙡𝙤𝙩 𝘰𝘧 𝘵𝘩𝘪𝘯𝘨𝘴 ! 𝄞⋆ ݁♪ . -- ────୨ৎ────
 
 										 
-pompompurin         , chiikawa       , ouran high school host club       , project sekai       , alien stage       , 
-my little pony      , the disastrous life of saki.k       ,  + many many more +  ⋆.˚! ೀ
+𝙥𝙤𝙢𝙥𝙤𝙢𝙥𝙪𝙧𝙞𝙣         , 𝙘𝙝𝙞𝙞𝙠𝙖𝙬𝙖       , 𝙤𝙪𝙧𝙖𝙣 𝙝𝙞𝙜𝙝 𝙨𝙘𝙝𝙤𝙤𝙡 𝙝𝙤𝙨𝙩 𝙘𝙡𝙪𝙗       , 𝙥𝙧𝙤𝙟𝙚𝙘𝙩 𝙨𝙚𝙠𝙖𝙞       , 𝙖𝙡𝙞𝙚𝙣 𝙨𝙩𝙖𝙜𝙚      , 𝙏𝙝𝙚 𝙙𝙞𝙨𝙖𝙨𝙩𝙧𝙤𝙪𝙨 𝙡𝙞𝙛𝙚 𝙤𝙛 𝙨𝙖𝙠𝙞.𝙠       ,  + 𝙢𝙖𝙣𝙮 𝙢𝙖𝙣𝙮 𝙢𝙤𝙧𝙚 +  ⋆.˚! ೀ
 
